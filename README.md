@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @randistyafitria
+- 👋 Hi, I’m Randistya Fitria!
 - 👀 I’m interested in reading, coding, hiking, cycling, and planting
 - 🌱 I’m currently learning what i curious about haha
 - 📫 Reach me on ig @randistyaf
