@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @randistyafitria
 - 👀 I’m interested in reading, coding, hiking, cycling, and planting
 - 🌱 I’m currently learning what i curious about haha
-- 💞️ I’m looking to collaborate on harvard university
 - 📫 Reach me on ig @randistyaf
 
 <!---
